@@ -40,10 +40,11 @@ Glad I lied to myself I was wrong (wrathed?)
 Now I realize (?) I am here (in red) -with- only dust and lasers and me alone
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
-Turning rage into cold (brew)
+Turning rage into cold (brew) 
 Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought
 Look at you all serene during calm before the storm
+(Shadow's near, the double )
 You think my morals gone, you think, fine, i think just refined yeah 
 Looking for sublime manifesting trance with bass (defines)
 lasers so defines the rhymes precise (lasers like rhymes)
@@ -68,6 +69,8 @@ Truth be told lack of progress is what scares me most
 Leading home another kind of route I'm taking off 
 the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
+
+
 
 ...
 
