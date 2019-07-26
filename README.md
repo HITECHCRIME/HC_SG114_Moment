@@ -40,18 +40,20 @@ Ain't rich according to y'all but that's fine
 Coz (it) that ain't my mode of thought
 
 You think my
-Morals gone, no they just refined 
-Looking for sublime manifesting rhymes
-Trance with bass to lasers so defines
-
-Oh I know I've put barriers against my better judgement
-Trying out but those new facades —  aaah
-
-...
-
+Morals gone, you think, fine, i think just refined yeah 
+Looking for sublime manifesting 
+Trance with bass to lasers so defines the rhymes
 What you can't see is the prize inside
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
+
+
+Oh I know I've put barriers against my better judgement
+Trying out but those new facade —  aaah
+
+...
+
+
 
 
 
