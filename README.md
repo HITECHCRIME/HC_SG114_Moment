@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Lyrics from the heart. Narrative style. 
+Lyrics from the heart. Narrative style. Underdog.
 
 **Beat:** 
 Ghost - Dark Trap Beat (FREE FOR PROFIT USE)
