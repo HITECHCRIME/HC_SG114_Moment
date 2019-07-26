@@ -20,7 +20,7 @@ https://www.youtube.com/watch?v=63oUdXbfvI4
 
 ```
 Feeling wrong with all the words been spitting out yeah
-Fleeting thoughts are the swarms I've been calling down (to)
+Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
 Counting blows like they are mine, no intention to put up 
 
@@ -35,7 +35,7 @@ Glad I lied to myself I was wrong
 Now I realize I am here with only dust and lasers and me alone
 In my head, always there, always sorta broke but strong
 Bowing head up in arms destitute but gold
-Turning rage into cold
+Turning rage into cold (brew)
 Ain't rich according to y'all but that's fine 
 Coz that ain't my mode of thought
 
