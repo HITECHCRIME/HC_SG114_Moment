@@ -44,6 +44,8 @@ You think my
 Morals gone, you think, fine, i think just refined yeah 
 Looking for sublime manifesting 
 Trance with bass to lasers so defines the rhymes (lasers like rhymes)  precise
+devise 
+perspectives colorized when many clash with one
 What inside you can't see is the prize
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
