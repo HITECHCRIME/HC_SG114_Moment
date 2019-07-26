@@ -54,6 +54,7 @@ Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
 Oh I know I've put barriers against my better judgement
 Trying out but those new facade —  aaah
+moment passed, made me feel like i need to atone
 
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
