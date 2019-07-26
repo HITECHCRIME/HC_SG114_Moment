@@ -42,8 +42,8 @@ Coz (it) that ain't my mode of thought
 You think my
 Morals gone, you think, fine, i think just refined yeah 
 Looking for sublime manifesting 
-Trance with bass to lasers so defines the rhymes (lasers like rhymes)
-What you can't see is the prize inside
+Trance with bass to lasers so defines the rhymes (lasers like rhymes)  precise
+What inside you can't see is the prize
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
 
