@@ -39,6 +39,8 @@ Turning rage into cold
 Ain't rich according to y'all but that's fine 
 Coz that ain't my mode of thought
 
+...
+
 What you can't see is the prize inside
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
