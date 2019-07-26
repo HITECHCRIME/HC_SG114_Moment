@@ -24,6 +24,11 @@ Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
 Counting blows like they are mine, no intentions to put up 
 
+Feeling wrong with all the words been spitting out yeah
+Fleeting thoughts are the swarms I've been calling down (to?)
+Give it up I've told myself perhaps a thousand times yeah 
+Counting blows like they are mine, no intentions to put up 
+
 Truth be told lack of progress is what scares me most
 Leading home another kind of route I'm taking off 
 the road so long as you don't listen, you just cope yeah
