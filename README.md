@@ -39,7 +39,6 @@ Turning rage into cold
 Ain't rich according to y'all but that's fine 
 Coz that ain't my mode of thought
 
-
 What you can't see is the prize inside
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
@@ -50,7 +49,6 @@ Looking for sublime manifesting in rhymes
 Trance with bass to lasers defines
 
 Oh I know I've put barriers against my better judgement
-
 Trying out but those new facades —  aaah
 
 ```
