@@ -36,7 +36,7 @@ Now I realize (?) I am here (in red) -with- only dust and lasers and me alone
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
 Turning rage into cold (brew)
-Ain't rich according to y'all but that's fine 
+Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought
 
 look at you all so serene during calm before the storm
