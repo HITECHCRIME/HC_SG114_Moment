@@ -51,6 +51,8 @@ Trance with bass to lasers defines
 Oh I know I've put barriers against my better judgement
 Trying out but those new facades —  aaah
 
+need another half - no repeating, just narrative
+
 ```
 
 ## Lyrics Production
