@@ -19,7 +19,6 @@ https://www.youtube.com/watch?v=63oUdXbfvI4
 ## Lyrics
 
 ```
-
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to)
 Give it up I've told myself perhaps a thousand times yeah 
@@ -42,16 +41,13 @@ Coz that ain't my mode of thought
 
 
 What you can't see is the prize inside
-
 Maybe take just a peek sometimes
-
 You prolly be suprised with what you're missing out
 
 You think my
-
 Morals gone, no they just refined 
-
-Looking for sublime
+Looking for sublime manifesting in rhymes
+Trance with bass to lasers defines
 
 Oh I know I've put barriers against my better judgement
 
