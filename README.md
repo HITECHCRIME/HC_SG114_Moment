@@ -34,10 +34,10 @@ All was sort of well before you came along
 (so) Glad I lied to myself I was wrong 
 Now I realize (?) I am here with only dust and lasers and me alone
 In my head, always there, always sorta broke but strong
-Bowing head up in arms destitute but gold
+Bowing head up in arms, destitute but gold
 Turning rage into cold (brew)
 Ain't rich according to y'all but that's fine 
-Coz that ain't my mode of thought
+Coz (it) that ain't my mode of thought
 
 ...
 
