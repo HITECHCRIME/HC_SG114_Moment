@@ -6,7 +6,10 @@
 
 ## Project Data
 
-Lyrics from the heart. Narrative. Ghost - Dark Trap Beat (FREE FOR PROFIT USE)
+Lyrics from the heart. Narrative. 
+
+**Beat:** 
+Ghost - Dark Trap Beat (FREE FOR PROFIT USE)
 https://www.youtube.com/watch?v=63oUdXbfvI4
 
 **Title:** Moment / **Featuring:** MOTHNODE
