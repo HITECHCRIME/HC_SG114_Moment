@@ -38,6 +38,7 @@ Bowing head up in arms, destitute but gold
 Turning rage into cold (brew)
 Ain't rich according to y'all but that's fine 
 Coz (it) that ain't my mode of thought
+look at you all so serene during calm before the storm
 
 You think my
 Morals gone, you think, fine, i think just refined yeah 
