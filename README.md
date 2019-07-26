@@ -16,7 +16,6 @@ https://www.youtube.com/watch?v=63oUdXbfvI4
 ## Lyrics
 
 ```
-MOTHNODE_ Moment
 
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to)
