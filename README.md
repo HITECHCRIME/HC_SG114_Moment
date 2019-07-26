@@ -39,12 +39,11 @@ Turning rage into cold (brew)
 Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought
 
-look at you all so serene during calm before the storm
-
+look at you all serene during calm before the storm
 You think my
 Morals gone, you think, fine, i think just refined yeah 
 Looking for sublime manifesting 
-Trance with bass to lasers so defines the rhymes (lasers like rhymes)  precise
+Trance with bass (defines) to lasers so defines the rhymes (lasers like rhymes)  precise
 devise 
 perspectives colorized when many clash with one
 What inside you can't see is the prize
