@@ -84,3 +84,5 @@ need another half - no repeating, just narrative
 ## Music Video
 
 Definicja Hitech Crime: „now i realize i am here with only dust and lasers and me alone” - teraz sobie wyobraz motyw music video (w sumie klasyczny), gdzie jest ujecie masywnego „sztucznego” nawet koncertu z masa ludzi dymu i laserow i w momencie jak to mowie to wszystko zamienia sie w pustke i ciemnosc z laserami w pyle
+
+Spowity w lasery na 8 osiach i uniemozliwiajace ruch. przycierajace czasem ubranie i ciało
