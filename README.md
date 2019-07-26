@@ -43,21 +43,31 @@ Bowing head up in arms, destitute but gold
 Turning rage into cold (brew)
 Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought
-
-look at you all serene during calm before the storm
-You think my
-Morals gone, you think, fine, i think just refined yeah 
-Looking for sublime manifesting 
-Trance with bass (defines) to lasers so defines the rhymes (lasers like rhymes)  precise
-devise 
-perspectives colorized when many clash with one
+Look at you all serene during calm before the storm
+You think my morals gone, you think, fine, i think just refined yeah 
+Looking for sublime manifesting trance with bass (defines)
+lasers so defines the rhymes precise (lasers like rhymes)
+devise perspectives colorized when many clash with one
 What inside you can't see is the prize
 Maybe take just a peek sometimes
 You prolly be suprised with what you're missing out
-
-
 Oh I know I've put barriers against my better judgement
 Trying out but those new facade —  aaah
+
+Feeling wrong with all the words been spitting out yeah
+Fleeting thoughts are the swarms I've been calling down (to?)
+Give it up I've told myself perhaps a thousand times yeah 
+Counting blows like they are mine, no intentions to put up 
+
+Feeling wrong with all the words been spitting out yeah
+Fleeting thoughts are the swarms I've been calling down (to?)
+Give it up I've told myself perhaps a thousand times yeah 
+Counting blows like they are mine, no intentions to put up 
+
+Truth be told lack of progress is what scares me most
+Leading home another kind of route I'm taking off 
+the road so long as you don't listen, you just cope yeah
+Feeding hope wasn't all that wise - nope
 
 ...
 
