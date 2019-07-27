@@ -56,6 +56,12 @@ Oh I know I've put barriers against my better judgement
 Trying out but those new facade —  aaah
 moment passed, made me feel like i need to atone
 
+Turns out I was a wolf in disguise yeah
+Took me bloody years to figure that out
+Fool blinded by the light i was (i was)
+
+
+
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
