@@ -19,6 +19,9 @@ https://www.youtube.com/watch?v=63oUdXbfvI4
 ## Lyrics
 
 ```
+"Let's just take a moment here.
+Let's just take a fucking moment!"
+
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
