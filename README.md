@@ -42,7 +42,7 @@ In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
 Turning rage into cold (brew) 
 Ain't rich (ain't shit) according to y'all but that's fine 
-Coz (it) that ain't my mode of thought
+Coz (it) that ain't my mode of thought (at all)
 Look at you all serene during calm before the storm
 (Shadow's near, the double )
 You think my morals gone, you think, fine, i think just refined yeah 
