@@ -80,13 +80,17 @@ Leading home another kind of route I'm taking off
 the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
 
-
+Now I get to know the new horizons - such a trope
+All was sort of well before you came along  (so)
+Glad I lied to myself I was wrong (wrathed?)
+Now I realize (?) I am here (in red) -with- only dust and lasers and me alone
+In my head, always there, always sorta broke but strong
+Bowing head up in arms, destitute but gold
+Turning rage into cold (brew) 
+Ain't rich (ain't shit) according to y'all but that's fine 
+Coz (it) that ain't my mode of thought (at all)
 
 ...
-
-
-
-
 
 need another half - no repeating, just narrative
 
