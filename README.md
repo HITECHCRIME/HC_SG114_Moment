@@ -48,17 +48,20 @@ Look at you all serene during calm before the storm
 You think my morals gone, you think, fine, i think just refined yeah 
 Looking for sublime manifesting trance with bass (defines)
 lasers so defines the rhymes precise (lasers like rhymes)
-devise perspectives colorized when many clash with one
+i devise perspectives colorized when many clash with one
 What inside you can't see is the prize
 Maybe take just a peek sometimes
+Turns out I was a wolf in disguise yeah
+Took me bloody years to figure that out
+Fool blinded by the light i was (i was)
+Coalitions and fake support - what's that?
 You prolly be suprised with what you're missing out
+Putting all on trust and actually righting the wrong
+That would catch you minding other people emotions
 Oh I know I've put barriers against my better judgement
 Trying out but those new facade —  aaah
 moment passed, made me feel like i need to atone
 
-Turns out I was a wolf in disguise yeah
-Took me bloody years to figure that out
-Fool blinded by the light i was (i was)
 
 
 
