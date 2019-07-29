@@ -22,75 +22,70 @@ https://www.youtube.com/watch?v=63oUdXbfvI4
 "Let's just take a moment here.
 Let's just take a fucking moment!"
 
-Feeling wrong with all the words been spitting out yeah
-Fleeting thoughts are the swarms I've been calling down (to?)
-Give it up I've told myself perhaps a thousand times yeah 
-Counting blows like they are mine yeah
+Ayee
 
+[HOOK]
+Feeling wrong with all the words been spitting out
+Fleeting thoughts are the swarms I've been calling down
+Give it up I've told myself perhaps a thousand times
+Counting blows like they are mine
+
+[VERSE]
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
 Counting blows like they are mine, no intentions to put up 
-
 Truth be told lack of progress is what scares me most
 Leading home another kind of route I'm taking off 
 the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
 
-Now I get to know the new horizons - such a trope arise
+[CHORUS]
+Now I get to know the new horizons - such a trope arises
 All was sort of well before you came along (truth)
 Glad I lied to myself I was wrong (wrathed?) (capped)
-Now I realize (?) I am here (in red) -with- only dust and lasers and me alone (MELODY)
+Now I realize I am here with only dust and lasers and me alone (MELODY)
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but (for) gold
 Turning rage into cold (brew) 
 Ain't rich (ain't shit)(ain't a thing) according to y'all but that's fine (allright)
-Coz (it) that ain't my mode of thought (at all)
+Coz (it) that ain't my mode of thought - at all (lower)
 
+[VERSE]
 Look at you all serene during calm before the storm
-Shadow's near, the double lost the mask somewhere in my heart
-You think my morals gone, you think, fine, i think they just refined
+Shadow's near, the double thong 
+i just think it's wrong 
+You think my morals gone, you think so, 
+fine - i think they just refined
+feeling somewhere in my heart 
 Maybe try to actually speak sometimes if you think communication was wrong
-
-Looking for sublime manifesting trance with bass
-lasers they define the rhymes precise (lasers be like rhymes)
-i devise perspectives colorized when many clash with one
-slicing through the core
-
-What inside you can't see is the prize
-Maybe take just a peek sometimes
-
-Turns out I was a wolf in disguise yeah
-Took me bloody years to figure that out yeah
-Fool blinded by the light i was (i was)
-
+lost the mask (in red)
 Coalitions and fake support - what's that?
 You prolly be suprised with what you're missing out
-
 Putting all on trust and actually righting wrongs
-That would catch you minding other people emotions?
-Oh I know I've put barriers against my better judgement
-Trying out but those new facade —  aaah
-moment passed, made me feel like i need to atone
+That would catch you minding other people souls? (emotions)
+Looking for sublime manifesting trance with bass
+lasers they define the rhymes precise (lasers be like rhymes) disasters
+i devise perspectives colorized when many clash with one
+slicing through the core with gracious dance
 
-
-
-
+[HOOK]
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
 Counting blows like they are mine, no intentions to put up 
 
+[VERSE]
 Feeling wrong with all the words been spitting out yeah
 Fleeting thoughts are the swarms I've been calling down (to?)
 Give it up I've told myself perhaps a thousand times yeah 
 Counting blows like they are mine, no intentions to put up 
-
 Truth be told lack of progress is what scares me most
 Leading home another kind of route I'm taking off 
 the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
 
+[CHORUS]
 Now I get to know the new horizons - such a trope
 All was sort of well before you came along  (so)
 Glad I lied to myself I was wrong (wrathed?)
@@ -100,6 +95,22 @@ Bowing head up in arms, destitute but gold
 Turning rage into cold (brew) 
 Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought (at all)
+
+
+
+
+
+What inside you can't see is the prize
+Maybe take just a peek sometimes
+
+Turns out I was a wolf in disguise yeah
+Took me bloody years to figure that out yeah
+Fool blinded by the light i was (i was)
+
+
+Oh I know I've put barriers against my better judgement
+Trying out but those new facade —  aaah
+moment passed, made me feel like i need to atone
 
 ...
 
