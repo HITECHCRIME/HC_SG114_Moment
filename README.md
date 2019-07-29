@@ -50,6 +50,7 @@ Coz (it) that ain't my mode of thought (at all)
 Look at you all serene during calm before the storm
 Shadow's near, the double lost the mask somewhere in my heart
 You think my morals gone, you think, fine, i think they just refined
+Maybe try to actually speak sometimes if you think communication was wrong
 
 Looking for sublime manifesting trance with bass
 lasers they define the rhymes precise (lasers be like rhymes)
