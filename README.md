@@ -40,7 +40,7 @@ Feeding hope wasn't all that wise - nope
 Now I get to know the new horizons - such a trope
 All was sort of well before you came along  (so)
 Glad I lied to myself I was wrong (wrathed?)
-Now I realize (?) I am here (in red) -with- only dust and lasers and me alone
+Now I realize (?) I am here (in red) -with- only dust and lasers and me alone (MELODY)
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
 Turning rage into cold (brew) 
