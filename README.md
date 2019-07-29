@@ -42,7 +42,7 @@ All was sort of well before you came along (truth)
 Glad I lied to myself I was wrong (wrathed?) (capped)
 Now I realize (?) I am here (in red) -with- only dust and lasers and me alone (MELODY)
 In my head, always there, always sorta broke but strong
-Bowing head up in arms, destitute but gold
+Bowing head up in arms, destitute but (for) gold
 Turning rage into cold (brew) 
 Ain't rich (ain't shit)(ain't a thing) according to y'all but that's fine (allright)
 Coz (it) that ain't my mode of thought (at all)
