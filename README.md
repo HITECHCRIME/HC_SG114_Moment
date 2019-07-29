@@ -38,29 +38,36 @@ the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
 
 Now I get to know the new horizons - such a trope arise
-All was sort of well before you came along  (so)
-Glad I lied to myself I was wrong (wrathed?)
+All was sort of well before you came along (truth)
+Glad I lied to myself I was wrong (wrathed?) (capped)
 Now I realize (?) I am here (in red) -with- only dust and lasers and me alone (MELODY)
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
 Turning rage into cold (brew) 
-Ain't rich (ain't shit) according to y'all but that's fine 
+Ain't rich (ain't shit)(ain't a thing) according to y'all but that's fine (allright)
 Coz (it) that ain't my mode of thought (at all)
+
 Look at you all serene during calm before the storm
-(Shadow's near, the double )
-You think my morals gone, you think, fine, i think just refined yeah 
-Looking for sublime manifesting trance with bass (defines)
-lasers so defines the rhymes precise (lasers like rhymes)
+Shadow's near, the double lost the mask somewhere in my heart
+You think my morals gone, you think, fine, i think they just refined
+
+Looking for sublime manifesting trance with bass
+lasers they define the rhymes precise (lasers be like rhymes)
 i devise perspectives colorized when many clash with one
+slicing through the core
+
 What inside you can't see is the prize
 Maybe take just a peek sometimes
+
 Turns out I was a wolf in disguise yeah
-Took me bloody years to figure that out
+Took me bloody years to figure that out yeah
 Fool blinded by the light i was (i was)
+
 Coalitions and fake support - what's that?
 You prolly be suprised with what you're missing out
-Putting all on trust and actually righting the wrong
-That would catch you minding other people emotions
+
+Putting all on trust and actually righting wrongs
+That would catch you minding other people emotions?
 Oh I know I've put barriers against my better judgement
 Trying out but those new facade —  aaah
 moment passed, made me feel like i need to atone
@@ -90,7 +97,7 @@ Now I realize (?) I am here (in red) -with- only dust and lasers and me alone
 In my head, always there, always sorta broke but strong
 Bowing head up in arms, destitute but gold
 Turning rage into cold (brew) 
-Ain't rich (ain't shit) according to y'all but that's fine (allright)
+Ain't rich (ain't shit) according to y'all but that's fine 
 Coz (it) that ain't my mode of thought (at all)
 
 ...
