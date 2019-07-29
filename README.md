@@ -37,7 +37,7 @@ Leading home another kind of route I'm taking off
 the road so long as you don't listen, you just cope yeah
 Feeding hope wasn't all that wise - nope
 
-Now I get to know the new horizons - such a trope
+Now I get to know the new horizons - such a trope arise
 All was sort of well before you came along  (so)
 Glad I lied to myself I was wrong (wrathed?)
 Now I realize (?) I am here (in red) -with- only dust and lasers and me alone (MELODY)
