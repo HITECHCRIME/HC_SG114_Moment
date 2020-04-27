@@ -139,3 +139,27 @@ need another half - no repeating, just narrative
 Definicja Hitech Crime: „now i realize i am here with only dust and lasers and me alone” - teraz sobie wyobraz motyw music video (w sumie klasyczny), gdzie jest ujecie masywnego „sztucznego” nawet koncertu z masa ludzi dymu i laserow i w momencie jak to mowie to wszystko zamienia sie w pustke i ciemnosc z laserami w pyle
 
 Spowity w lasery na 8 osiach i uniemozliwiajace ruch. przycierajace czasem ubranie i ciało
+
+/// MOTHNODE_ MOMENT [PROTO]
+
+/// "I am here with only dust and lasers and me alone, in my head, always there, always sorta broke but strong" /// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// TARGET_ HC_SG114_MOMENT
+/// STATUS_ FULL SONG PROTOTYPE /// LISTEN TO REGULAR SONG DEV
+/// MORE ACCESS @mothnode /// LYRICS
+Feeling wrong with all the words been spitting out yeah
+Fleeting thoughts are the swarms I've been calling down (to)
+Give it up I've told myself perhaps a thousand times yeah
+Counting blows like they are mine, no intentions to put up x2
+Truth be told lack of progress is what scares me most
+Leading home another kind of route I'm taking off
+the road so long as you don't listen, you just cope yeah
+Feeding hope wasn't all that wise - nope
+Now I get to know the new horizons - such a trope
+All was sort of well before you came along so
+Glad I lied to myself I was wrong
+Now I realize I am here with only dust and lasers and me alone
+In my head, always there, always sorta broke but strong
+Bowing head up in arms, destitute but gold
+Turning rage into cold
+Ain't rich according to y'all but that's fine
+Coz it ain't my mode of thought /// NODE STEMS #hitechcrime #humanedge #edm #multilingual #producer #trapmusic #baldgang #beardgang #twitchcreative #startup #prototype #song #darktrap #hiphopmusic #rap #rapper #rappers #hiphop
